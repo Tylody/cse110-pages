@@ -17,9 +17,9 @@ My favorite teahouse is the Huxinting Teahouse in Yu Garden in China.
 
 My favorite album is MAGICAL by Junko Ohashi.
 
-[I really like this song (external link to Spotify)](https://open.spotify.com/track/7o67roCVsFiCt7Cf0ZLOJq)
-
 ![Album Cover of Magical by Junko Ohashi](https://lightintheattic.net/cdn/shop/files/500_PROT-7279__MAGICAL.jpg?v=1712873516)
+
+[I really like this song (external link to Spotify)](https://open.spotify.com/track/7o67roCVsFiCt7Cf0ZLOJq)
 
 My top 3 artists:
 1. Claude Monet
